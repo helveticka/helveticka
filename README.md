@@ -1,1 +1,1 @@
-I’m @helveticka, interested on computer science and minimal design
+I’m @helveticka, interested on computer science and minimal design.
